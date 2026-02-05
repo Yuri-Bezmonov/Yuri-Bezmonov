@@ -2,6 +2,7 @@
 
 I use Artix btw
 
+![truthnuke](images/TotalSoystemDdeath2.jpg)
 
 My ancestors are proud of me, are yours? 😛
 
