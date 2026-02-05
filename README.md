@@ -1,6 +1,8 @@
 ## Wagwan piffting whats your BBM pin 👋
 
-I use Artix btw /n
+I use Artix btw
+
+
 My ancestors are proud of me, are yours? 😛
 
 ![tankpic](images/tank.png)
